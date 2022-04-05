@@ -8,4 +8,4 @@ Zajrzyj [tutaj](https://gekon-media.pl)
 
 ### podpodtytuł
 
-I na co się patrzysz? :)
+I na co się patrzysz? :) Przecież tylko się uczę
